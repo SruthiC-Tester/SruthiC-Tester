@@ -16,7 +16,7 @@
 
 ###
 
-<h2 align="left">MY C V : (https://drive.google.com/file/d/14zSjQRmy1X4rRkIsqjzQMIVh21wxuCyr/view?usp=sharing)
+<h2 align="left">MY C V : https://drive.google.com/file/d/191kugBv9fUo8stpXGD1rEMb6ajFdlQ4F/view?usp=sharing
 
 
 <div align="left">
